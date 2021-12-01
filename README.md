@@ -1,4 +1,4 @@
-My name is Nurfazilla binti Rahim and I currently working as a Statistician at Statistics and Data Intelligence Department, Malaysian Communications and Multimedia Commission (MCMC).  
+My name is Nurfazilla binti Rahim and I am currently working as a Statistician at Statistics and Data Intelligence Department, Malaysian Communications and Multimedia Commission (MCMC).  
 
 A little about myself:
 >I have spent the past 6+ years carrying out research and involved with data analysis.
